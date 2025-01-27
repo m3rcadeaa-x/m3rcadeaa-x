@@ -7,6 +7,8 @@
 
 ☾ + Fictkin Names ;; *Ryuu / Sprout* ~
 
+PRONOUNS ;; He/They/It/Star
+
 ---
 PONYTOWN TAGS
 ---
