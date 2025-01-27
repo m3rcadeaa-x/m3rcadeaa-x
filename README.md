@@ -17,6 +17,8 @@ DO NOT COPY MY SKINS !!!
 
 RP DNIUF ;; sys ;; iwc
 
+w2i if busy !
+
 ---
 !!! DO NOT INTERACT !!!
 ---
