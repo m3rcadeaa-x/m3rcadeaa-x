@@ -86,6 +86,10 @@ NOTES
 
 More info will be added if needed ! 
 
+Socials in my Carrd/Strawpage/LinkTree ^-^
+
+Strawpage will be updated soon -- Feel free to draw on it!
+
 If you'd like to add me on discord, let me know !
 
 commissions are coming soon!
