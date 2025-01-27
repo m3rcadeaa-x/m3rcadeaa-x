@@ -18,6 +18,16 @@ DO NOT COPY MY SKINS !!!
 RP DNIUF ;; sys ;; iwc
 
 ---
+!!! DO NOT INTERACT !!!
+---
+
+- Homophobes/Transphobes
+- Problematic Comshippers/Proshippers
+- Ableists
+- Racists/Xenophobes/Anti-Asians
+- AI "Artists"
+
+---
 General Info
 ---
 ISTP-T
@@ -37,16 +47,6 @@ Moon lover <3
 Happily Taken !
 
 Galaxy Enthusiast
-
----
-!!! DO NOT INTERACT !!!
----
-
-- Homophobes/Transphobes
-- Problematic Comshippers/Proshippers
-- Ableists
-- Racists/Xenophobes/Anti-Asians
-- AI "Artists"
 
 ---
 `.+ [Main] Fandoms I'm in ! . .  ~
