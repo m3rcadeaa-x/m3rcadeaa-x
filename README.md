@@ -5,7 +5,7 @@
 
 ★ ~ Please, call me *Ericc / Merc* !
 
-☾ + Fictkin Names ;; *Ryuu / Sprout* ~
+☾ + Fictkin Names ;; *Ryuu / Sprout / Two Time* ~
 
 PRONOUNS ;; *He / They / It / Star*
 
