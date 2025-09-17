@@ -1,11 +1,11 @@
-꒰ ★ ꒱
+ ꒰ ★ ꒱
 ---
 
 ↓ `.+ Get to know more abt me ! . . ↓
 
 ★ ~ Please, call me *Ericc / Merc* !
 
-☾ + Fictkin Names ;; *Ryuu / Sprout / Two Time* ~
+☾ + Fictkin Names ;; *Ryuu / Artful / Devesto* ~
 
 PRONOUNS ;; *He / They / It / Star*
 
@@ -55,6 +55,8 @@ Galaxy Enthusiast
 ---
 `.+ [Main] Fandoms I'm in ! . .  ~
 ---
+
+♯ Die of Death [RBLX] - MAIN
 
 ♯ Dandy's World [RBLX]
 
