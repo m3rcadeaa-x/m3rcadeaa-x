@@ -13,11 +13,11 @@ PRONOUNS ;; *He / They / It / Star*
 PONYTOWN TAGS
 ---
 
-C+H freely !
+C+H freely !  (unless stated otherwise)
 
 DO NOT COPY MY SKINS !!!
 
-RP DNIUF ;; sys ;; iwc
+RP DNIUF ;; iwc
 
 w2i if busy !
 
