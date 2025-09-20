@@ -70,10 +70,6 @@ Galaxy Enthusiast
 
 ♯ Murder Drones
 
-♯ Alice in Borderland
-
-♯ Squid Games
-
 ♯ BlockTales [RBLX]
 
 ♯ Danganronpa 
