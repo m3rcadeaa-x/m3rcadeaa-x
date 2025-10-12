@@ -5,7 +5,7 @@
 
 ★ ~ Please, call me *Ericc / Merc* !
 
-☾ + Fictkin Names ;; *Ryuu / Artful* ~
+☾ + Fictkin Names ;; *Ryuu / Artful / Mark* ~
 
 PRONOUNS ;; *He / They / It / Star*
 
@@ -56,7 +56,11 @@ Galaxy Enthusiast
 `.+ [Main] Fandoms I'm in ! . .  ~
 ---
 
-♯ Die of Death [RBLX] - MAIN
+♯ Regretevator [RBLX] - MAIN
+
+♯ Die of Death [RBLX]
+
+♯ BlockTales [RBLX]
 
 ♯ Dandy's World [RBLX]
 
@@ -69,8 +73,6 @@ Galaxy Enthusiast
 ♯ I Love Amy
 
 ♯ Murder Drones
-
-♯ BlockTales [RBLX]
 
 ♯ Danganronpa 
 
