@@ -84,6 +84,8 @@ Galaxy Enthusiast
 
 ♯ Club Penguin
 
+♯ Assassination Classroom
+
 ---
 NOTES
 ---
