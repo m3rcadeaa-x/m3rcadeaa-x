@@ -56,9 +56,9 @@ Galaxy Enthusiast
 `.+ [Main] Fandoms I'm in ! . .  ~
 ---
 
-♯ Regretevator [RBLX] - MAIN
+♯ Die of Death [RBLX] - MAIN
 
-♯ Die of Death [RBLX]
+♯ Regretevator [RBLX]
 
 ♯ BlockTales [RBLX]
 
