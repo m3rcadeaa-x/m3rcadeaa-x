@@ -40,7 +40,7 @@ I'm Asian-American ! (Vietnamese)
 
 °+. Transmasculine, Biromantic Asexual
 
-Disorders ;; ADHD, BPD, AVPD, Dyslexia, Neurodivergent
+Diagnosed Disorders ;; AuDHD, BPD, AVPD, Dyslexia, Neurodivergent
 
 I'm a Lightshipper !
 
