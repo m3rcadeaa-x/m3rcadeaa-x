@@ -38,9 +38,9 @@ ISTP-T
 
 I'm Asian-American ! (Vietnamese)
 
-°+. Transmasculine, Biromantic Asexual ;; Hypersexual 
+°+. Transmasculine, Biromantic Asexual
 
-Disorders ;; ADHD, BPD, AVPD, Dyslexia, Neurodivergent, Slight OCD
+Disorders ;; ADHD, BPD, AVPD, Dyslexia, Neurodivergent
 
 I'm a Lightshipper !
 
