@@ -42,6 +42,8 @@ I'm Asian-American ! (Vietnamese)
 
 Diagnosed Disorders ;; AuDHD, BPD, AVPD, Dyslexia, Neurodivergent
 
+Semi-verbal
+
 I'm a Lightshipper !
 
 [Self-Taught] Digital + Traditional Artist
