@@ -35,9 +35,9 @@ w2i if busy !
 !! BEFORE YOU INTERACT !!
 ---
 I am hypersexual. If this makes you uncomfortable, feel free to block.
-\- It is a coping mechanism/trauma response I have developed.
-\- This is NOT an invitation to try to be weird or push anything on me.
-\- I limit myself as best as possible.
+- It is a coping mechanism/trauma response I have developed.
+- This is NOT an invitation to try to be weird or push anything on me.
+- I limit myself as best as possible.
 
 Diagnosed Disorders ;; AuDHD, BPD, AVPD, Dyslexia, Neurodivergent, Mild OCD
 
