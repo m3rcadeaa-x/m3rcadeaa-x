@@ -32,7 +32,7 @@ w2i if busy !
 - AI "Artists"
 
 ---
-!!BYI !!
+!! BEFORE YOU INTERACT !!
 ---
 I am hypersexual. If this makes you uncomfortable, feel free to block.
 \- It is a coping mechanism/trauma response I have developed.
@@ -44,6 +44,8 @@ Diagnosed Disorders ;; AuDHD, BPD, AVPD, Dyslexia, Neurodivergent, Mild OCD
 Semi-verbal ;; Sometimes goes mute/nonverb when anxious, stressed, or uncomfortable
 
 I'm prone to age regression during breakdowns/when I am upset
+
+I am a lightshipper + multishipper + mirrorshipper. 
 
 ---
 General Info
