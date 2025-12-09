@@ -32,6 +32,20 @@ w2i if busy !
 - AI "Artists"
 
 ---
+!!BYI !!
+---
+I am hypersexual. If this makes you uncomfortable, feel free to block.
+\- It is a coping mechanism/trauma response I have developed.
+\- This is NOT an invitation to try to be weird or push anything on me.
+\- I limit myself as best as possible.
+
+Diagnosed Disorders ;; AuDHD, BPD, AVPD, Dyslexia, Neurodivergent, Mild OCD
+
+Semi-verbal ;; Sometimes goes mute/nonverb when anxious, stressed, or uncomfortable
+
+I'm prone to age regression during breakdowns/when I am upset
+
+---
 General Info
 ---
 ISTP-T
@@ -47,20 +61,6 @@ Moon lover <3
 Happily Taken !
 
 Galaxy Enthusiast
-
----
-BYI
----
-I am hypersexual. If this makes you uncomfortable, feel free to block.
-\- It is a coping mechanism/trauma response I have developed.
-\- This is NOT an invitation to try to be weird or push anything on me.
-\- I limit myself as best as possible.
-
-Diagnosed Disorders ;; AuDHD, BPD, AVPD, Dyslexia, Neurodivergent, Mild OCD
-
-Semi-verbal ;; Sometimes goes mute/nonverb when anxious, stressed, or uncomfortable
-
-I'm prone to age regression during breakdowns/when I am upset
 
 ---
 `.+ [Main] Fandoms I'm in ! . .  ~
