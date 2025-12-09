@@ -39,7 +39,7 @@ I am hypersexual. If this makes you uncomfortable, feel free to block.
 - This is NOT an invitation to try to be weird or push anything on me.
 - I limit myself as best as possible.
 
-Diagnosed Disorders ;; AuDHD, BPD, AVPD, Dyslexia, Neurodivergent, Mild OCD
+Diagnosed Disorders ;; AuDHD, BPD, AVPD, Neurodivergent, Mild OCD
 
 Semi-verbal ;; Sometimes goes mute/nonverb when anxious, stressed, or uncomfortable
 
