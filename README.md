@@ -5,7 +5,7 @@
 
 ★ ~ Please, call me *Ericc / Merc* !
 
-☾ + Fictkin Names ;; *Ryuu / Artful / Develesto* ~
+☾ + Fictkin Names ;; *Ryuu / Artful / Develesto / Sword* ~
 
 PRONOUNS ;; *He / They / It / Star*
 
@@ -69,6 +69,8 @@ Galaxy Enthusiast
 ---
 
 ♯ Die of Death [RBLX] - MAIN
+
+♯ Phighting [RBLX] - MAIN
 
 ♯ Regretevator [RBLX]
 
