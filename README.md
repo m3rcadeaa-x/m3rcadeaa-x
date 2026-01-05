@@ -45,7 +45,7 @@ Semi-verbal ;; Sometimes goes mute/nonverb when anxious, stressed, or uncomforta
 
 I'm prone to age regression during breakdowns/when I am upset
 
-I am a lightshipper + multishipper + mirrorshipper. 
+I am a lightshipper + multishipper + mirrorshipper + yumeshipper. 
 
 ---
 General Info
