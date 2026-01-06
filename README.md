@@ -5,7 +5,7 @@
 
 ★ ~ Please, call me *Ericc / Merc* !
 
-☾ + Fictkin Names ;; *Ryuu / Artful / Develesto / Sword* ~
+☾ + Fictkin Names ;; *Ryuu / Artful / Sword* ~
 
 PRONOUNS ;; *He / They / It / Star*
 
