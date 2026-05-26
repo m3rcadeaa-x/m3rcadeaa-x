@@ -5,7 +5,7 @@
 
 ★ ~ Please, call me *Ericc / Merc* !
 
-☾ + Fictkin Names ;; *Ryuu / Artful / Cloak / Sword* ~
+☾ + Fictkin Names ;; *Artful / Sword* ~
 
 PRONOUNS ;; *He / They / It / Star*
 
@@ -54,13 +54,9 @@ ISTP-T
 
 I'm Asian-American ! (Vietnamese)
 
-°+. Transmasculine, Biromantic Asexual
+°+. Transmasculine, Genderflux, Bisexual
 
 [Self-Taught] Digital + Traditional Artist
-
-Moon lover <3 
-
-Happily Taken !
 
 Galaxy Enthusiast
 
